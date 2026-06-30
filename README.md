@@ -5,7 +5,7 @@
 📞 +91 7715072484  
 📧 msammeet@gmail.com  
 💻 GitHub: [*Github Profile*](https://github.com/Dan14-boop) 
-🔗 LinkedIn: [*LikedIn Profile*](https://www.linkedin.com/in/sammeet-mistry-b69690303/)
+🔗 LinkedIn: [*LinkedIn Profile*](https://www.linkedin.com/in/sammeet-mistry-b69690303/)
 
 ---
 
