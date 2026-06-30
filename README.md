@@ -1,4 +1,3 @@
-# SammeetMistry.github.io
 
 # Sammeet Mistry
 
