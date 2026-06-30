@@ -4,8 +4,8 @@
 📍 Mumbai, India  
 📞 +91 7715072484  
 📧 msammeet@gmail.com  
-💻 GitHub: *Add your GitHub URL here*  
-🔗 LinkedIn: *Add your LinkedIn URL here*
+💻 GitHub: [*SammeetMistry Resume*](https://github.com/Dan14-boop) 
+🔗 LinkedIn: [*LikedIn Profile*](https://www.linkedin.com/in/sammeet-mistry-b69690303/)
 
 ---
 
